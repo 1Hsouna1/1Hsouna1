@@ -2,7 +2,7 @@
 - 👀 I’m interested in Chess
 - 🌱 I’m currently learning Chess
 - 💞️ I’m looking to collaborate on Chess
-- 📫 How to reach me => Lichess => Hsouna1
+- 📫 How to reach me => Lichess => Hsouna1 jk roadtogmhsouna@gmail.com
 - 😄 Pronouns: King / Knight
 - ⚡ Fun fact: I like to play chess
 
